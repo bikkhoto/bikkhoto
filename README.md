@@ -2,7 +2,7 @@
  - 👀 I’m interested in blockchain.
  - 🌱 I’m currently learning about machine learning.
  - 👯 I’m looking to collaborate on projects.
- - 🤔 How to reach me?  on X @nazmuzsakib on parlar @studyproglobal
+ - 🤔 How to reach me?  on X @nazmuzsakib
  - 🏳️‍🌈 Pronouns: he/him
  - 🤪 Fun fact: I used to work at Google!
 
